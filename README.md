@@ -36,4 +36,4 @@
 
 当然，源创会直播的时候，大家还可以线上跟专家直接交流。更有一系列福利相送，感兴趣的话可以添加小助手了解更多此次活动的相关信息：
 
-图片: https://uploader.shimo.im/f/a0hUsPQLqANlXrdx.jpeg
+![输入图片说明](https://images.gitee.com/uploads/images/2020/0621/181314_079beaa8_1871372.png "源创君2_meitu_1.png")
